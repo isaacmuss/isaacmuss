@@ -2,7 +2,7 @@
 - 👀 I’m interested in Energy & Sustainability
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on Energy & Sustainability projects
-- 📫 How to reach me isaacmm2019@gmail.com
+- 📫 How to reach me ...
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
